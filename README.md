@@ -1,1 +1,0 @@
-# Practica-de-Programaci-n
